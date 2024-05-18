@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Emmakasaki
 - 👀 I’m interested in Gaming, Anime, Making desktop applications
-- 🌱 I’m currently learning nothing really
+- 🌱 I’m currently learning whatever i feel like at the moment whether it be like c++ or smth else  idk
 - 💞️ I’m looking to collaborate on whatever
 - 📫 How to reach me add me on discord: emmakasaki
 - 😄 Pronouns: She/Her
